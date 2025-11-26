@@ -4,7 +4,7 @@
 
 # Why?
 
-The answer is obvious, we aint paying 😭:v:
+The answer is obvious, we aint paying 😭✌️
 
 # How To Use
 1. Download Patcher.zip
